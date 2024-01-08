@@ -1,1 +1,1 @@
-# Website
+# GS-IT-School
